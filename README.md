@@ -3,6 +3,8 @@ This repository is dedicated for manga.
 
 <b>Project CloudSakura</b>
 
+Link: https://cloudsakura.blogspot.com/
+
 <u>Synopsis</u>
 
 It's about a school life a bored teenager interacting with the world. Soraki Kumoto, a typical high school boy just 
