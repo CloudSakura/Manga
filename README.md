@@ -21,5 +21,4 @@ Sakura intruded into the scene.
   electric nature sometimes pull occurring gag in the story.
 
 
-#1)Synopsis Added
-#2)Link Added
+
