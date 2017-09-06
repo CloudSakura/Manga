@@ -19,3 +19,7 @@ Sakura intruded into the scene.
 - Ayuzawa Sakura 
   Thought (previously by Soraki) as introverted, the girl is energetic as a toddler booster with EnergyBar. Her occasional 
   electric nature sometimes pull occurring gag in the story.
+
+
+#1)Synopsis Added
+#2)Link Added
