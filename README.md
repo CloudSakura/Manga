@@ -14,11 +14,10 @@ need one thing, world peace. But somehow his own peace is thrown into disarray w
 Sakura intruded into the scene. 
 
 <strong>Character</strong>
-
-<p><strong>Soraki Kumoto</strong></p> 
+<strong>Soraki Kumoto</strong>
 A first year freshmen. He love tranquility. 
 
-<p><strong>Ayuzawa Sakura</strong></p> 
+<strong>Ayuzawa Sakura</strong>
 Thought (previously by Soraki) as introverted, the girl is energetic as a toddler booster with EnergyBar. Her occasional electric nature sometimes pull occurring gag in the story.
 
 
