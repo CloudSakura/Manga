@@ -14,6 +14,7 @@ need one thing, world peace. But somehow his own peace is thrown into disarray w
 Sakura intruded into the scene. 
 
 <strong>Character</strong>
+
 <strong>Soraki Kumoto</strong>
 A first year freshmen. He love tranquility. 
 
