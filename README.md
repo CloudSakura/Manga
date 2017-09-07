@@ -19,8 +19,7 @@ Sakura intruded into the scene.
   -A first year freshmen. He love tranquility. 
 
 <p><strong>Ayuzawa Sakura</strong></p> 
-  -Thought (previously by Soraki) as introverted, the girl is energetic as a toddler booster with EnergyBar. Her occasional 
-  electric nature sometimes pull occurring gag in the story.
+-Thought (previously by Soraki) as introverted, the girl is energetic as a toddler booster with EnergyBar. Her occasional electric nature sometimes pull occurring gag in the story.
 
 
 
