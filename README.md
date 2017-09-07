@@ -5,7 +5,7 @@ This repository is dedicated for manga.
 
 Link: https://cloudsakura.blogspot.com/
 
-Genre : Comedy, Random, School life
+<b>Genre :</b> Comedy, Random, School life
 
 <strong>Synopsis</strong>
 
