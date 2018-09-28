@@ -1,4 +1,7 @@
 # Manga
+
+<b>AXED</b>
+
 This repository is dedicated for manga.
 
 <b>Project CloudSakura</b>
